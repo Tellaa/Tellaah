@@ -7,7 +7,7 @@ Hi, I'm Tella
 
 
 - 💬 Ask me about: anything i know!
-- 📫 How to reach me: 
+- 📫 How to reach me: tellaquadri.a@gmail.com
 
 
 
